@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Oreoluwa's Journey in a Blog 
 
-I'm glad you are here. I plan to talk about ...
+Not sure what I'll be putting on here yet, but stay tuned
